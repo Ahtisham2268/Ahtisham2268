@@ -91,7 +91,7 @@ I used to be pretty serious about chess, hitting a peak rating of 1400 a couple 
   </a>
 </p>
 
-- ♟️ **Chess.com Profile:** [ahtishamali2268](https://www.chess.com/member/ahtishamali2268)
+- ♟️ **Chess.com Profile:** [ahtishamali2268](https://www.chess.com/member/aht1_sham)
 - 🔥 **Peak Rating:** 1400
 - 🤕 **Took a Break:** Left chess due to health issues but now back in action!
 
